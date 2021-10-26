@@ -8,6 +8,3 @@ Allowed to share, edit, and anything else with your name on it. This is not a se
 
 Hope you enjoy!
 
-~ Regards
-All In One - 1234
-
